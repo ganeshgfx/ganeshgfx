@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @ganeshgfx
 - 🌱 I’m currently learning
-- 🤑 I’m looking for work
 - 📫 How to reach me : https://www.instagram.com/ganesh.gfx/
 
 <!---
